@@ -1,2 +1,2 @@
 # Russian-Language-Studying
-俄语
+изучение русского языка
